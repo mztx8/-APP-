@@ -1,0 +1,1 @@
+﻿**域名替换**  mov.mztx8.cn**名称替换**  慢慢看本版更新 优化电影版块和电视直播版块，代理可以在线自助充值点数后台登录：http://域名/login/login   用户名yingshi   密码 admin博客后台登录，修改赚钱培训等信息：http://域名/qq/zb_system/login.php  用户名  admin ，密码admin1111
